@@ -1,0 +1,1 @@
+# AI-ANTI-SLOP-SKILL
